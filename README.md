@@ -1,6 +1,5 @@
 # bloody-raid-tool
 lol old shit, if you resell you gayyy! #discord #raider #raid #tool #raidtool #massdm #bypass ;)
 
-# just skid it!!!
+# it's just inspiration!!!
 - "ctrl c + ctrl v" 
-- Don't forget to change ascii art!!!
